@@ -19,7 +19,7 @@
 <p><strong>HyperHost OTO 1: HyperHost Unlimited – Coupon Code: <a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><span style="background-color: #ffff00;">HH10ULD</span></a></strong><br />
 <a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://hyperhost.live/oto1-unlimited</strong></a></p>
 <p><strong>HyperHost OTO 2: HyperHost DFY Setup – Coupon Code: <a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><span style="background-color: #ffff00;">HH30DF</span></a></strong><br />
-<a href="https://warriorplus.com/o2/a/bwkzxjf/0/4U" target="_blank" rel="nofollow noopener noreferrer"><strong>https://hyperhost.live/oto2-dfy</strong></a></p>
+<a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://hyperhost.live/oto2-dfy</strong></a></p>
 <p><strong>HyperHost OTO 3: HyperHost DFY Profit Articles – Coupon Code: <a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><span style="background-color: #ffff00;">HH10DPA</span></a></strong><br />
 <a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><strong>https://hyperhost.live/oto3-dfy-articles</strong></a></p>
 <p><strong>HyperHost OTO 4: HyperHost PageMate – Coupon Code: <a href="https://7review-oto.us/HyperHost-Coupon" target="_blank" rel="nofollow noopener noreferrer"><span style="background-color: #ffff00;">HH5PM</span></a></strong><br />
